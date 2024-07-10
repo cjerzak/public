@@ -1,1 +1,1 @@
-# Public PDFs associated with Connor Jerzak
+# Public Documents Associated with Connor Jerzak
