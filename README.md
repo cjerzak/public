@@ -1,1 +1,1 @@
-# Public Documents Associated with Connor Jerzak
+# Public Documents Associated with [Connor T. Jerzak](https://github.com/cjerzak/)
